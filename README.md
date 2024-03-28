@@ -2,7 +2,7 @@
 - 👀 I’m interested in … animals and world history
 - 🌱 I’m currently learning ... how to make things for my roblox shop
 - 💞️ I’m looking to collaborate on ... nothing lol
-- 📫 How to reach me ... smartadalee1@gmail.com
+- 📫 How to reach me ... smartadalee1@gmail.com or 309 703 6342
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... i have 6 cats!
 
